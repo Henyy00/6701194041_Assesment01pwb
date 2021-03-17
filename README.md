@@ -1,1 +1,2 @@
-# 6701194041_Assesment01pwb
+Nama : Heny Wahyuni Hasibuan
+Nim  : 6701194041
